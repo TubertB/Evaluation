@@ -1,1 +1,1 @@
-OM finaliste LDC
+OL finaliste de la LDC
