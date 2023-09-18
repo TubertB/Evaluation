@@ -1,1 +1,1 @@
-Paris finaliste LDC
+OM finaliste LDC
